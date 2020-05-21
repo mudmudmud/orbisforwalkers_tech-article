@@ -107,7 +107,8 @@ ipad防御するカバー。
 Otterbox defenderのiPad pro12.9用。重くてデカイしかも高い1万円以上する。普通は絶対買わない。
 ![](./img/otterbox.jpg)
 
-三脚に立てる用のipadマウント
+ガッちゃんこ
+![](./img/gacchanko.jpg)
 
 5/22(金)の午後は街を撮影しながらlive配信でもしようかと思っている。
 どうぞよろしく。
